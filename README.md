@@ -1,2 +1,5 @@
 # AI
 AI
+詹曜瑞 CHAN, YAO-JUI
+
+i'm a student of CHAOYANG UNIVERSITY OF TECHNOLOGY.
