@@ -1,5 +1,1 @@
 # AI
-
-詹曜瑞 CHAN, YAO-JUI
-
-I'm a student of CHAOYANG UNIVERSITY OF TECHNOLOGY.
